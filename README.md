@@ -7,7 +7,9 @@ https://github.com/KienChiNg/TheRoot_Unity/assets/106145545/8bd52480-dd40-4fa0-9
 
 Character upgrade
 
-Uploading Upgrade.mp4…
+https://github.com/KienChiNg/TheRoot_Unity/assets/106145545/f0a15eb2-3141-4521-b239-5989cb9f30e0
+
+
 
 
 
